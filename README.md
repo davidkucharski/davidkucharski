@@ -1,7 +1,7 @@
 David Kucharski
 @davidkucharski
 
-📌 Kamp-Lintfort (DE)
+📌 near Düsseldorf (DE)
 🧑‍🎓 Student and Developer
 
 https://dkucharski.de

@@ -2,7 +2,7 @@ David Kucharski
 @davidkucharski
 
 📌 near Düsseldorf (DE)
-🧑‍🎓 Student and Developer
+🧑‍🎓 Student
 
 https://dkucharski.de
 
